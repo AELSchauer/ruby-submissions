@@ -14,7 +14,7 @@ Outline:
 
 
 
-Ashley Schauer:
+Ashley Schauer: Adult ADHD
 
 Outline:
 
@@ -92,7 +92,7 @@ Outline:
 
 
 
-Katy Farmer: How to Play the Trumpet Indoors
+Katy Farmer:
 
 Outline:
 
